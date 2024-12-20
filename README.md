@@ -1,1 +1,1 @@
-# ZhibekSulukz
+# ZhibekSulu.com
