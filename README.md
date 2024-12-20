@@ -1,1 +1,1 @@
-# ZhibekSulu.com
+# ZhibekSulu.github.com
